@@ -2,7 +2,7 @@
 - 👀 I’m interested in Python and C++
 - 🌱 I’m currently learning python and C++
 - 💞️ I’m looking to collaborate on python and C++
-- 📫 How to reach me bonganithabiso842gmail.com
+- 📫 How to reach me bonganithabiso82@gmail.com
 - 😄 Pronouns: ....
 - ⚡ Fun fact: ...
 
